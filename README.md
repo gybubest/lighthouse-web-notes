@@ -1,1 +1,1 @@
-# [Yu]'s Notes
+# Yu's Notes
